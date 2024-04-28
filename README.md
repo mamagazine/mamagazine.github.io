@@ -1,0 +1,1 @@
+# mamagazine.github.io
